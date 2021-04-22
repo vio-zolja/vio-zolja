@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Vio Zolja
+- 👀 I’m interested in many things 
+- 🌱 I’m currently learning how to code on my own.
+- 🌏 I speak English, German, Croatian and a little bit of Spanish. I´m also learning Japanese.
+- 📫 How to reach me ---> E-Mail: mika.yuu258@gmail.com
